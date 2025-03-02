@@ -84,8 +84,7 @@ Sí, las mejores agencias ofrecen:
 ### ¿Cuánto Puedo Ganar con una Agencia de OnlyFans?  
 - **Sin Agencia** : 150-400 $/mes en promedio.  
 - **Con una Buena Agencia** : Miles de euros, o decenas de miles para el top 1%.  
-![Gráfico de Ingresos](https://via.placeholder.com/600x300.png?text=Ganancias+con+Agencia+OnlyFans)  
-*(Agrega un gráfico o imagen que muestre ganancias potenciales.)*
+
 
 ### ¿Es Legal Trabajar con una Agencia de OnlyFans?  
 Sí, siempre que la agencia cumpla con las leyes locales (impuestos, regulaciones laborales) y los términos de OnlyFans. Sin embargo, una gestión total por terceros podría violar las reglas de la plataforma, arriesgando una suspensión.
@@ -94,5 +93,4 @@ Sí, siempre que la agencia cumpla con las leyes locales (impuestos, regulacione
 
 ## Contacta una Agencia de OnlyFans Hoy  
 Para más información o para mejorar tu cuenta, contacta a **Louna's Models** en su sitio oficial: [**https://lounasmodels.com/**](https://lounasmodels.com/).  
-![Imagen de Llamada a la Acción](https://via.placeholder.com/600x200.png?text=Contacta+una+Agencia+Ahora)  
-*(Agrega una imagen orientada a la acción, como un botón o banner.)*
+
